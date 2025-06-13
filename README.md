@@ -44,4 +44,4 @@ I’m always open to collaboration, freelance projects, or just talking tech.
 🌐 **Website/Portfolio:** [Your Portfolio Here]  
 🔗 **LinkedIn / Other socials:** [Add links here]
 
-Thanks for stopping by! 👋
+Thanks for stopping by! 
